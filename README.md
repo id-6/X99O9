@@ -1,4 +1,1 @@
-
-### تابع : [LUCITHON](https://t.me/lucithon) ###
-
-![الحجي مصطفى](https://telegra.ph/file/4134205618b4904a1fdd0.jpg)
+تيم النموس (https://telegra.ph/file/bcb4dc6ecd049c1a11835.jpg)
